@@ -1,6 +1,6 @@
 Adding some cool feature
 # bob added something really cool
 # bob added something really cool branch
-# i have no idea what im doing
+# STOP MESSING WITH MY HIGH QUALITY WORK
 # My branchs is getting stuff leave it
 # Staaaahhppp
